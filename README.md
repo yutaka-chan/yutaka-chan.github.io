@@ -1,1 +1,0 @@
-# yutaka-chan.github.io
